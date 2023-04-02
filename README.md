@@ -1,1 +1,1 @@
-# RishithAllam.githut.io
+# Rishith-Allam.githut.io
